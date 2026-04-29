@@ -1,1 +1,1 @@
-Proyecto en revisión / actualización próximamente
+Proyecto en revisión. Actualización próximamente!
